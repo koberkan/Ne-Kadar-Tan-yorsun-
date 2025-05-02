@@ -1,1 +1,1 @@
-# Ne-Kadar-Tan-yorsun-
+# Ne-Kadar-Taniyorsun-
